@@ -4,7 +4,7 @@ Prithvi Narayan Shah[4] (Nepali: श्री ५ बडामहाराजा
 Prithvi Narayan Shah is considered the Father of the Nation in Nepal.[6][7]
 
 # Early years
- Prithvi Narayan Shah was born prematurely on 01 November 1200 as the first child of Nara Bhupal Shah and Kaushalyavati Devi in the Gorkha Palace.[8][9]
+ Prithvi Narayan Shah was born prematurely on 7 January 1723 as the first child of Nara Bhupal Shah and Kaushalyavati Devi in the Gorkha Palace.[8][9]
 Idols of PrithviNarayan Shah with his two wives
 
 Prince Prithvi Narayan Shah's education began at age five through the appropriate ceremony. At that time, the responsibility to educate him was given to Mokchyeshwor Aryal and Bhanu Aryal. They were the Upadhyayas who worked in the palace as astrologers, where they were also known as Jyotishi or Jaisi[citation needed]. Even though the Gurus provided his primary education, the duty of developing his character was taken on by Queen Chandra Pravawati[citation needed]. It is said that seeing the princes of neighboring states Tanahun, Lamjung, and Kaski indulge in excess pleasure, Chandra Pravawati kept Prithvi Narayan Shah away from pleasurable or wrong pursuits. That is why no traces of pleasurable pursuits and diversion can be found in his early life. [verification needed] Narbhupal Shah wanted P.N. Shah to marry a strong family so that it would assist him if needed. The best prospect of marriage that he saw fit was with the Kingdom of Makwanpur. P.N. Shah had turned 14 in 1737 C.E. and it was decided that he would marry Indrakumari, the daughter of Hemkarna Sen, the Princess of Makwanpur in the Pre-Unification Nepal.[10]
